@@ -1,1 +1,1 @@
-Hello! I like making things in Roblox. 🎃
+Hello! I do random programming things for fun, that's about it
